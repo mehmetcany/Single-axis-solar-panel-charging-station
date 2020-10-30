@@ -1,1 +1,1 @@
-# Tek-eksenki-g-ne-paneli-arj-istasyonu
+# Tek-eksenki-gunes-paneli-sarj-istasyonu
